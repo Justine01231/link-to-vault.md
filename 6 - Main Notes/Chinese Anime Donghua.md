@@ -14,6 +14,7 @@ Tags: [[Donghua]]
 [[Renegade Immortal]]
 [[Tale of Herding Gods]]
 [[Tomb of Fallen Gods]]
+[[Swallowed Star]]
 
 
 
