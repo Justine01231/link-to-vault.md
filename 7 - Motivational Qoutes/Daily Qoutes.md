@@ -1,0 +1,1 @@
+"A moral purist who is quick to judge others often fails to see the flaws within herself."
