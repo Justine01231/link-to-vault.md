@@ -4,7 +4,7 @@
 
 Status:
 
-Tags:
+Tags: [[Ideology]]
 
 
 
