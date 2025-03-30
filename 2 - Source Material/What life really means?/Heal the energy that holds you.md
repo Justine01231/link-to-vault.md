@@ -179,3 +179,4 @@ Your only job? Become self-aware, release negative energy, and allow abundance t
     
 - Everything is vibration. The highest vibration is love. Align with it, and everything else follows effortlessly.
 
+how can you forgive others if you can't even forgive yourself
