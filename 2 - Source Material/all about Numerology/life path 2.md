@@ -1,4 +1,4 @@
-
+[[Obsidian-vault-BACKUP/6 - Main Notes/Numerology|Numerology]]
 
 ## Life Path 2 – The Peacemaker & Harmonizer
 
