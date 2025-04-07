@@ -10,4 +10,6 @@ _Battle Through the Heavens_ follows **Xiao Yan**, a once-talented genius who lo
 - [x] **Episode 138 - The Eternal Flame Emperor**  
  
 - [x] **Episode 139**  
+- [x] 141
+- [ ] 
 

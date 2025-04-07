@@ -1,3 +1,3 @@
 [[Cultivation Listing - watch]]
 
-- [x] episode 107 
+- [x] episode 12 season 2 
