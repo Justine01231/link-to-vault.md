@@ -9,3 +9,4 @@ Unlike many other xianxia stories where protagonists quickly gain godlike power,
 
 - [x] **Episode 135**  
 - [x] 137
+- [x] 138
