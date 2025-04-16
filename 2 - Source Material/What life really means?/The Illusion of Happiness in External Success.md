@@ -1,6 +1,4 @@
 
-[[Healing and Gratitude]]
-
 **1. The Chase for Fulfillment**
 
 People often believe they will be happy when they achieve something (e.g., a perfect body, fame, success, money).
@@ -215,3 +213,7 @@ She had lost sight of the real reason she started:
     
 
 Instead of waiting for happiness in some distant future, we can choose to feel worthy, safe, and loved right now. True fulfillment comes from within, not from external achievements.
+
+
+
+[[Healing and Gratitude]]

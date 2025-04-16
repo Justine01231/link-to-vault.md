@@ -1,6 +1,4 @@
 
-[[Healing and Gratitude]]
-
 - **The Concept of Free Will vs. Divine Control**:
     
     - If God knows everything before we are born (like whether we’ll be a boy or a girl, or whether we’ll live in a rich or poor family), does this mean we don’t have true free will? If God knows our future, does it limit our ability to make choices?
@@ -36,3 +34,8 @@
     - If spirituality is about living authentically, experiencing life without restrictions, and seeking peace, then why do many people follow religions that impose restrictions? Does religion limit free will, or is it supposed to guide people toward something greater?
         
     - Why do people believe in something without questioning it, just because it’s what they’ve been taught? Is belief enough, or should people seek their own understanding of truth?
+
+
+
+
+[[Healing and Gratitude]]
