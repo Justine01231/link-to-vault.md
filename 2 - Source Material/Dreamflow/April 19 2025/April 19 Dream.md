@@ -1,0 +1,6 @@
+
+**🌌 Dream Summary:** I was using a computer that operated on time-based coin input. After my time dropped to 30, I inserted 5 more coins, but it shut off. My friend’s mother would insert coins for him instantly when his time ran out. His mom wanted to help me too, but I declined. Later, the owner got angry, shut everything down, and I waited to get my coin back.
+
+Suddenly, I was in a tall, multi-level house (around 6 floors). I hid on the 5th floor behind wooden panels, watching a group stream — including my brother. When they noticed me, I ran and attempted to escape, even parkouring on window ledges. A flying man chased me. I reached the 5th and tried to go to the 6th floor, but he said it was forbidden.
+
+Later, I had a small jet — light enough to carry, but big enough to fly inside. I soared into the air, marked a location on a map, and teleported to it. Then, I witnessed a girl being chased by a group. She damaged a house’s power and water, and the owner yelled at her. She said she couldn't pay because of her many debts.

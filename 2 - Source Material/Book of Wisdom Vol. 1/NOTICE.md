@@ -1,0 +1,2 @@
+
+All the Images in this book have undergone editing, manipulation, and artificial generation to prevent any potential copyright claims. Each image within the book has been transformed and is now categorized as 'artwork,' falling under the copyright of the author of the Book of Wisdom. None of the images featured in this book are presented in their original form.
