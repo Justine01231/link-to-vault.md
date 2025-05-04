@@ -183,4 +183,4 @@ Your only job? Become self-aware, release negative energy, and allow abundance t
 how can you forgive others if you can't even forgive yourself
 
 
-[[Healing and Gratitude]]
+[[Spirituality]]

@@ -72,4 +72,4 @@ Whether you see the firmament as a dome, a metaphor, or an energetic veil—ther
 6. **Live from presence**: The more you stay in awareness, the more the illusion falls away.
 
 
-[[Healing and Gratitude]]
+[[Spirituality]]

@@ -200,4 +200,4 @@ That’s sacred. That’s rare. That’s transformation.
 > And then you’ll see — the void was never empty. It was full of space for truth, for love, for you.
 
 
-[[Healing and Gratitude]]
+[[Spirituality]]

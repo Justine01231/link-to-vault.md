@@ -128,4 +128,4 @@ Sit in silence. Just be. The more you rest there, the more youâ€™ll _feel_ it â€
 ---
 
 
-[[Healing and Gratitude]]
+[[Spirituality]]

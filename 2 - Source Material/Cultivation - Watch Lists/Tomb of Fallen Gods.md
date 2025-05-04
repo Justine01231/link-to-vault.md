@@ -1,4 +1,4 @@
 [[Cultivation Listing - watch]]
 
 
-- [x] Season 2 Episode 27 (43)
+- [x] Season 2 Episode (43)

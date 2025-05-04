@@ -54,4 +54,4 @@ Given where you are — exploring non-attachment, ego, shadow, and inner peace �
 In that way, _chance and evolution_ may be part of the story — but not the full story.  
 The deeper purpose unfolds when you stop searching and simply **listen within**.
 
-[[Healing and Gratitude]]
+[[Spirituality]]

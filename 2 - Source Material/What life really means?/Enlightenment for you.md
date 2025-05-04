@@ -38,4 +38,4 @@
 
 
 
-[[Healing and Gratitude]]
+[[Spirituality]]

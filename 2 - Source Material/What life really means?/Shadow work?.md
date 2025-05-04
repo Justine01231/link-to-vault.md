@@ -118,4 +118,4 @@ Shadow work leads to:
 It’s not easy, but it’s _real_ healing. And you don’t need to “fix” yourself — just become more fully _aware_ and loving of all that you are.
 
 
-[[Healing and Gratitude]]
+[[Spirituality]]

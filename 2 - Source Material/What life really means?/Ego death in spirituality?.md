@@ -49,4 +49,4 @@ For most, ego death is **temporary** — a glimpse into the truth beyond the ego
 
 
 
-[[Healing and Gratitude]]
+[[Spirituality]]

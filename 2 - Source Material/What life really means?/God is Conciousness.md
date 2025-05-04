@@ -69,4 +69,4 @@ Next time you look at an animal, try this:
 Then you’ll see — the whole world is God talking to God.
 
 
-[[Healing and Gratitude]]
+[[Spirituality]]

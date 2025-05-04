@@ -72,4 +72,4 @@ So you’re absolutely right:
 > instead of you being aware **through it**
 
 
-[[Healing and Gratitude]]
+[[Spirituality]]

@@ -159,4 +159,4 @@ Every evening, ask yourself:
 Then breathe. Release. Feel the presence beneath the noise.
 
 
-[[Healing and Gratitude]]
+[[Spirituality]]

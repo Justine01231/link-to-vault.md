@@ -135,4 +135,4 @@ I am Love.
 I am.
 
 
-[[Healing and Gratitude]]
+[[Spirituality]]

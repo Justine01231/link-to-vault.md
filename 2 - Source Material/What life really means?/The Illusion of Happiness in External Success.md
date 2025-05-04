@@ -216,4 +216,4 @@ Instead of waiting for happiness in some distant future, we can choose to feel w
 
 
 
-[[Healing and Gratitude]]
+[[Spirituality]]

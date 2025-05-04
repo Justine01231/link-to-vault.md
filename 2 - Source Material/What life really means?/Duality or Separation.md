@@ -155,4 +155,4 @@ Only light,
 Riding every sine wave home.
 
 
-[[Healing and Gratitude]]
+[[Spirituality]]
