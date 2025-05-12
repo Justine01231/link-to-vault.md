@@ -12,3 +12,5 @@ Unlike many other xianxia stories where protagonists quickly gain godlike power,
 - [x] 138
 - [x] 139
 - [x] 140
+- [x] 141
+- [x] 142
