@@ -15,5 +15,5 @@ _Battle Through the Heavens_ follows **Xiao Yan**, a once-talented genius who lo
 - [ ] 143
 - [ ] 144
 - [ ] 145
-- [ ] 146P
+- [ ] 146
 
