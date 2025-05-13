@@ -40,4 +40,6 @@ perfect world
 martial UNiverse
 martial GOd asura
 jade dynasty
-battle through the heaven
+battle through the heavens
+swallows star
+the legend of sword domain
