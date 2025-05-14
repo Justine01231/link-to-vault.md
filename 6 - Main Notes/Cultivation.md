@@ -10,7 +10,7 @@ Tags: [[Donghua]]
 # References
 
 [[Battle Through the Heavens]]  
-[[A Record of Moral's Journey To immortality]]
+[[Season 1 & 2 & 3]]
 [[Renegade Immortal]]
 [[Tale of Herding Gods]]
 [[Tomb of Fallen Gods]]
