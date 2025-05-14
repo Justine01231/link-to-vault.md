@@ -1,5 +1,5 @@
 
-[[Cultivation Listing - watch]]
+[[Cultivation]]
 
 - [x] episode 105
 - [x] ep 106

@@ -1,3 +1,3 @@
-[[Cultivation Listing - watch]]
+[[Cultivation]]
 
 Waiting for Season 2

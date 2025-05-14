@@ -1,4 +1,4 @@
-[[Cultivation Listing - watch]]
+[[Cultivation]]
 
 **Season 1**
 

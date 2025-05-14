@@ -1,4 +1,4 @@
-[[Cultivation Listing - watch]]
+[[Cultivation]]
 
 - [x] episode 209  
 - [x] 210

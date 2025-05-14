@@ -1,4 +1,4 @@
-[[Cultivation Listing - watch]]
+[[Cultivation]]
 
 - [x] episode 107
 - [x] episode 108

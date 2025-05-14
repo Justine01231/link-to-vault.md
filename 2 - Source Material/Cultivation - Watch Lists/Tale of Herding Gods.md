@@ -1,4 +1,4 @@
-[[Cultivation Listing - watch]]
+[[Cultivation]]
 
 - [x] **Episode 21** 
 - [x] episode 25

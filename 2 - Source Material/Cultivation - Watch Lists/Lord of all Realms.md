@@ -1,4 +1,4 @@
-[[Cultivation Listing - watch]]
+[[Cultivation]]
 
 
 - [x] ep 32

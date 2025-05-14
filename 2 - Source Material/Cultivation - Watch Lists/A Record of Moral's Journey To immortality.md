@@ -1,4 +1,4 @@
-[[Cultivation Listing - watch]]
+[[Cultivation]]
 
 **Synopsis**  
 _Han Li_, an ordinary boy from a poor village, is recruited into a small sect with hopes of achieving immortality. Unlike most xianxia protagonists with divine talents or legendary bloodlines, Han Li is simply **a mortal** with intelligence, patience, and a strong will.

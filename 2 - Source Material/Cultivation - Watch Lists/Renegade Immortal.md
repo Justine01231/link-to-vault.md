@@ -1,4 +1,4 @@
-[[Cultivation Listing - watch]]
+[[Cultivation]]
 
 - [x] **Episode 80**
 - [x] episode 83
